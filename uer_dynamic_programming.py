@@ -18,7 +18,7 @@ Links to Jan Drugowitsch:
 - X: https://x.com/jdrugowitsch
 
 My links (Ryan Kamp):
-- LinkedIn: https://www.linkedin.com/in/rjk1999
+- LinkedIn: https://www.linkedin.com/in/ryanjosephkamp/
 - Personal Website: https://sites.google.com/view/ryanjosephkamp
 
 
